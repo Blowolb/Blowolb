@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Blowolb
-- 👀 I’m interested in Everything interesting
+- 👀 I’m interested in Anything interesting
 - 🌱 I’m currently learning for knowledge
 - 💞️ I’m looking to collaborate on anything worthy
 - 📫 How to reach me 
